@@ -1,2 +1,2 @@
 # spirituality
-About the iternity
+About the iternity...
